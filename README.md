@@ -1,1 +1,0 @@
-# jjjinsol.github.io
